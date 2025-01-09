@@ -62,5 +62,6 @@ Marketing Collateral
 
 I combine in-depth research, SEO strategies, and user-centric storytelling to create content that not only educates but also converts. If you're looking for someone to simplify tech jargon, craft engaging content, and drive user engagement, I'm here to help!
 
-![1000022677](https://github.com/user-attachments/assets/ac714bbd-eb61-42ef-98d5-238a284c8a91)
+![1000022678](https://github.com/user-attachments/assets/e87a275e-19d8-4238-b31a-19435d084d70)
+
 
